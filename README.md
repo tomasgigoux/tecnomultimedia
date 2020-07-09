@@ -1,1 +1,9 @@
 # tecnomultimedia
+Pulp Fiction.
+En esta adaptación podemos seguir los pasos de dos personajes, Vincent Vega y Butch Coolidge. Dependiendo de quién se elija, la aventura va a ser distinta.
+Si avanzamos con Vincent nos enteramos que es un mafioso que trabaja para Marsellus Wallas. Su jefe le da dos misiones a seguir, una es encontrar un maletín misterioso que contiene cosas muy importantes y la otra es entretener a su mujer por una noche mientras él sale de viaje. 
+Cuando vas en busca del maletín se te asigna compañero, Jules Winnfield. Con él van a enfrentar la aventura. Siguen la primera pista hacia la casa de unos rebeldes, pero no tienen nada. Lo única información que le sacan es que un boxeador llamado Butch podría saber su paradero. Cuando llegan se está escapando y no saben por qué, un disparo certero termina con su vida y su único rastro. Llaman al jefe desesperados que no se toma esto para nada bien y te deja sin trabajo.
+Yendo a cenar con Mía, la mujer de Marsellus, pasas una linda noche. Hay coqueteo y baile, depende de vos como quieras terminar, si en una zanja o en tu preciosa cama solo.
+Si eliges a Butch se te presenta como un niño con algunos problemas para sociabilizar y que extraña a su padre en guerra. Un hombre desconocido llega y le confiesa que su papá murió. Lo único que queda de él es un reloj de bolsillo que le pertenecía y quiere que lo conserve.
+Ya adulto te has convertido en boxeador profesional, se te ofrece a cambio de muchísima plata perder tu próxima pelea. Si terminas con tu arreglo te vas a tu casa con un maletín lleno de dinero y con la moral y tu cara muy golpeada.
+Ganando la pelea estás muy cerca de morir, la persona que te contrató es Marsellus, un mafioso. Tenés que salir del país, pero antes pasas a buscar el reloj de tu padre. Eso no termina bien, alguien te esperaba en tu casa y no fue a tomar el té. La próxima deberías debatirte si vale más un reloj que tu propia vida.
